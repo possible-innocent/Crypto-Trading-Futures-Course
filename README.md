@@ -132,10 +132,10 @@
 
 ## Ссылки [:arrow_up:](#криптотрейдинг-на-фьючерсах-от-а-до-я-star2)
 
-:point_right: [Забронировать место](https://docs.google.com/forms/d/1zTP2sUcXmOQC9BfCX90ijne8JIdE2unpO3_B-WEu3vY)
+:point_right: [Забронировать место](https://cutt.ly/l8SxpWs)
 
 :point_right: [Менеджер](https://t.me/PossibleInnocent)
 
-:point_right: [YouTube](https://www.youtube.com/@crypfues)
-
 :point_right: [Telegram](https://t.me/crypfues)
+
+:point_right: [YouTube](https://www.youtube.com/@crypfues)
